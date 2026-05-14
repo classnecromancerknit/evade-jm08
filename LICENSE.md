@@ -1,4 +1,4 @@
-#  
+#  evade hidden Scripts is the best evade Script, featuring no cooldown and private server access. Safe and powerful for all your needs.
 
 
 
